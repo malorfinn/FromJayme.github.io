@@ -1,22 +1,18 @@
-# Welcome to My page Tasha!
+Welcome home, babe.
 
-I wanted to say that. I know things have been hard for you and I really wish I could be there for you in every way you dream of some day!!!
+I just really needed to tell you this today. I know how heavy things have been for you lately, and more than anything, I wish I could be right there beside you supporting you in every way you’ve ever dreamed of.
 
-I love you so much its hard to picture myself with anyone else and maybe it isn't right but I want you to know that things will be okay some day.
-We just have to get there and I wanna see it through!
+I love you so deeply that it’s hard to imagine my life with anyone else. Maybe that sounds overwhelming, but I genuinely believe that things are going to be okay. We just have to make it through this chapter, and I want nothing more than to see it through with you.
 
-I want you so bad it is almost embarrassing. I keep dreaming of us together, I want to do all the mundane things like grocery shopping, chores, taking care of the kids, loving you the way you should have been to begin with.
+It almost frightens me how much I want you. I keep dreaming about what our life together would look like not just the grand moments, but the quiet, everyday ones too. I want to go grocery shopping with you, tackle life’s chores together, raise a family, and simply love you the way you have always deserved to be loved.
 
-I want all of you, your mind your affection your personality your voice. your body...I want it against mine. I want to feel your skin on mine
+I want all of you. Your mind, your laugh, your voice, your warmth. I want to feel your skin against mine and hold you close.
 
-I hope you know just how much I mean it when I say I want all of you. I wish you were here with me right now. I want to call you my gf and maybe even my wife some day if it works out.
-I never thought I would ever say that. life really changes people. so do you. You are amazing and I know you don't see it. I miss you when we don't talk and I am happy you are talking to your freinds again :)
+I mean every single word. I wish you were in my arms right now. I want to call you my girlfriend and one day, if fate allows, my wife. I never thought I’d say those words to anyone, but life changes us, and being with you has changed me for the better. You are breathtaking, even if you can't always see it in yourself. I miss you deeply whenever we aren't talking, and it makes my heart so happy to see you reconnecting with your friends.
 
-I just want you to know that as long as I can be I wanna be there for you!
+As long as I am able, I will always be in your corner.
 
-I don't know when  good time would be to meet in person. I do though
+I don't know exactly when the right time will be for us to meet in person, but I know in my heart that I want to. I know things are complicated right now, but as long as you’re still in this with me, we will figure it out together.
 
-I just wish things where not so complicated right now. we will get it figured out if you want too still ofc.
-
-you are all I want babe
+You are everything I want, babe. Always.
 
