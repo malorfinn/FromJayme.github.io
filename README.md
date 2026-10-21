@@ -16,3 +16,4 @@ I don't know exactly when the right time will be for us to meet in person, but I
 
 You are everything I want, babe. Always.
 
+This site is temporary, and secure I just wanted to make sure I was able to tell you :) 
